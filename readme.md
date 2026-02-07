@@ -11,4 +11,4 @@
 
 ## EGG DOSA
 1. THICKEST DOSA BATTER
-2. EGGS
+2. EGGS required 2
